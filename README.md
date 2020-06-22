@@ -1,2 +1,2 @@
 # Harith-Blogs
-Harith Blogs لصناعة المنظفات والاستثمار والربح في الانترنت
+Harith Blogs for the industry of cleaners, corona virus fighting, investment and profit in the internet
